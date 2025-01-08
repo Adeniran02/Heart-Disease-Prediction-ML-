@@ -5,4 +5,4 @@ For many years, Heart disease has been a prevalent cause of mortality among many
 
 I hope it's helpful -):
 
-Additionally, please note that I am open to collaborations, kindly connect with me on (LinkedIn[https://www.linkedin.com/in/adeniran-olanrewaju/])
+Additionally, please note that I am open to collaborations, kindly connect with me on [LinkedIn](https://www.linkedin.com/in/adeniran-olanrewaju/)
